@@ -1,1 +1,0 @@
-# ApexPlanet-Task-1-Cybersecurity
